@@ -5,7 +5,8 @@
 ## Historical Context 
 ## The Adaptation
 ![My Adaptation](https://i.imgur.com/STXZfEh.png)
-<p align="center">Print material adapted to website.</p>
+<p align="center">Print material adapted to website.
+  
 ### Formal Qualities 
 ### Cultural Meaning
 ## Rhetorical Significance 
