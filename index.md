@@ -1,6 +1,6 @@
 ## Introduction 
 
-## Why This Image? 
+## Why This Document? 
 
 ![Original](https://i.imgur.com/W4Z496e.png)
 [Read full document here.](https://100years.plannedparenthood.org/content/images/era-4/WeRememberBrocure.pdf) 
