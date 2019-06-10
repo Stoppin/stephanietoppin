@@ -1,6 +1,6 @@
 ## Introduction 
 ## Why This Image? 
-![Original](https://100years.plannedparenthood.org/content/images/era-4/WeRememberBrocure.pdf)
+![Original](https://i.imgur.com/W4Z496e.png)
 ## Historical Context 
 ## The Adaptation
 ![My Adaptation](https://i.imgur.com/STXZfEh.png)
